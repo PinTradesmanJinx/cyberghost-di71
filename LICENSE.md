@@ -4,7 +4,7 @@ Automatic CyberGhost Utility | dedicated IP + double VPN is the best CyberGhost 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://PinTradesmanJinx.github.io/cyberghost-di71/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://PinTradesmanJinx.githubhttps://PinTradesmanJinx.github.io/cyberghost-di71/.io/cyberghost-di71/ ) |
  |---------------------|----------------------:|
 
 
