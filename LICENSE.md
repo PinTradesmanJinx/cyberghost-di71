@@ -1,10 +1,10 @@
-Automático CyberGhost Utilitário | IP dedicado + VPN duplo é o melhor CyberGhost utilitário com IP dedicado e VPN duplo. Seguro e otimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://PinTradesmanJinx.github.io/cyberghost-di71/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
